@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://telegra.ph/file/d02b81736a7e9519c6386.jpg">
+  <img src="https://carder.top/imagens/1764081875643-766377963.jpg">
 </p>
 
 <p align="center">
@@ -32,7 +32,7 @@
 
 </p>
 
-**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [˹ꜱʏꜱᴛᴜᴍ ꭙ ᴍᴜꜱɪᴄ˼𓆩𔘓⃭𓆪](https://t.me/Systumm_music_bot)**
+**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [˹ꜱʏꜱᴛᴜᴍ ꭙ ᴍᴜꜱɪᴄ˼𓆩𔘓⃭𓆪](https://t.me/SUKOON_MUSIC_VC_BOT)**
 
 
 
